@@ -1,1 +1,1 @@
-my first rreadme
+My hot software course
